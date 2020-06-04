@@ -1,0 +1,2 @@
+# Xbox-Llive-Gold-Ultimate
+Lo que te entregamos no es un codigo, es UN (PERFIL) con los dos beneficios incluidos.  ¿Se puede jugar desde mi perfil? Si es de xbox one s,x, si, puedes jugar desde tu perfil y desde cualquier otro y disfrutar de los beneficios sin ningún problema. si es 360 puede jugar con la cuenta que se le envia.  ¿Tengo que tener el perfil que me dan abierto para poder jugar? No, simplemente con tenerlo en la consolo podras disfrutar de los beneficios de la cuenta que te entragamos.(xbox principal)  ¿Es seguro el mes? Si, es 100% seguro 
